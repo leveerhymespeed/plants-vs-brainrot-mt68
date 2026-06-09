@@ -1,4 +1,4 @@
-
+plants vs brainrots smart Scripts offers the most advanced plants vs brainrots Script, with teleport and auto-heal. Perfect for dominating any match.
 
 
 
